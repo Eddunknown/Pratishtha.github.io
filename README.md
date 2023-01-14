@@ -1,1 +1,1 @@
-# Pratishtha.github.io
+# Pratishparda.github.io
